@@ -1,3 +1,3 @@
 
 
-ㅤ[atabook](https://janvonkruger.atabook.org/) ㅤㅤㅤㅤㅤㅤrmking rentry 
+ㅤ[atabook](https://janvonkruger.atabook.org/) ㅤㅤㅤㅤㅤㅤ[rentry im not rmking](https://rentry.co/janvonkruger)
